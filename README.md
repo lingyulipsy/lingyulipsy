@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lingyulipsy
+- 👋 Hi, I’m @Lingyu Li (李凌宇)
 - 👀 I’m interested in understanding the complex nature of us humans.
 
 <!---
